@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @sophtacular!
+- 👀 I’ve seen The Office (U.S.) at least 10 times.
+- 🐈 I have two orange cats, Ferris and Goldie.
+- 👩🏼‍🦱 I'm a big swiftie, my favourite era is Reputation 🖤🐍
+- 🌱 I’m currently learning the basics of Python!
